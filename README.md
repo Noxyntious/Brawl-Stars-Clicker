@@ -1,4 +1,4 @@
-# Brawl-Stars-Clicker
+# Brawl Stars Clicker
 cringe
 cringe 
 cringe 
