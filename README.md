@@ -7,3 +7,4 @@ cringe
 cringe 
 v
 # cringe cringe cringe cringe cringe cringe cringe cringe cringe cringe cringe cringe cringe cringe cringe cringe cringe cringe cringe cringe cringe cringe 
+# čůrák veliký
